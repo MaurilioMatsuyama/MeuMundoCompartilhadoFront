@@ -1,0 +1,1 @@
+Projeto criado para estudo das tecnologias, porém será utilizado em breve para o compartilhamento de informações sobre TEA (Transforno do Espectro Autista).
